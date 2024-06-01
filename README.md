@@ -1,0 +1,4 @@
+Revitalize your urban space while earning cash with Scrap Car GTA, your premier solution for scrap car removal in Downtown Toronto, Scarborough, Etobicoke, Pickering, and North York. Say goodbye to that old clunker taking up valuable parking space and hello to extra money in your pocket! Our hassle-free service ensures a seamless process from pickup to payment, leaving you with peace of mind and a cleaner environment.
+But that's not all – Scrap Car GTA goes beyond just removing scrap cars. Need towing or roadside assistance? We've got you covered. With our dedicated team and reliable service, you can trust us to handle any automotive situation with professionalism and efficiency.
+Don't let that eyesore sit in your driveway any longer. Turn it into cash today with Scrap Car GTA! Visit us at https://scrapcargta.com/ to learn more and schedule your pickup.
+
